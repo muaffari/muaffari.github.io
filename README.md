@@ -1,2 +1,0 @@
-# muaffari.github.io
-Bismillah
